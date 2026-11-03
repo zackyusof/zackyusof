@@ -1,6 +1,6 @@
 # Zack Yusof
 
-Rookie vibe coder · Rookie music production enthusiast · Rookie composer · Rookie guitar player · Rookie bass player
+Vibe coder · Music production enthusiast · Composer · Guitar player · Bass player
 
 Learning by building, making music, and figuring things out along the way.
 
